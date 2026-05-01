@@ -57,8 +57,8 @@ non-obvious patterns through visualisation.
 
 ## 📬 Let's Connect
 
-- 💼 [LinkedIn](https://linkedin.com/in/yourprofile)
-- 📧 [Email](mailto:youremail@gmail.com)
+- 💼 [LinkedIn](https://www.linkedin.com/in/abilash-m-76bb6438a/)
+- 📧 [Email](mailto:ashgh0899@gmail.com)
 - 💬 Open to DMs — always happy to talk data
 
 ---
